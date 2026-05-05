@@ -1,2 +1,0 @@
-# Aquafit
-AQUAFIT 
